@@ -1,4 +1,4 @@
-I work on operating systems and operating system acceseries.
+I work on operating systems and operating system accessories.
 
 #### Larger projects I take part in
 
